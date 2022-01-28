@@ -1,6 +1,6 @@
 Privacy Policy
 
-Andrey Sochinskiy built the Fantasy roulette cubes app as a Free app. This SERVICE is provided by Andrey Sochinskiy at no cost and is intended for use as is.
+Andrey Sochinskiy built the Fantasy Dice app as a Free app. This SERVICE is provided by Andrey Sochinskiy at no cost and is intended for use as is.
 
 This page is used to inform visitors regarding my policies with the collection, use, and disclosure of Personal Information if anyone decided to use my Service.
 
